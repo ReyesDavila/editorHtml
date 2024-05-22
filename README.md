@@ -1,0 +1,1 @@
+Mi editor gratuito y offline te ofrece comodidad para programar desde cualquier lugar. ¡Responsivo, sin anuncios y funciona sin internet! Ideal para cortes de luz. Se aceptan donaciones PayPal a reyesdavila1987@hotmail.com
